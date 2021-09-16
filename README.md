@@ -1,5 +1,11 @@
 ### Hi there 👋
-
+Şu anda  Köpek ve kedi Mama kabı üzerine çalışıyorum 
+Phtion 
+Şu KOonuda yardım istiyorum Kodlarımdaki  ayrıntıları bana yardmcı  olabilecek
+Bana yardımcı olur musunuz 
+Bana sor 
+E-posta elifsuicmez616162@gmail.com 
+#DOSTEVİmAMAKABI #hAYVANLARhUZURLAYEMEKYİYOR 
 <!--
 **dostevi/dostevi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
